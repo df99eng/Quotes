@@ -1,4 +1,5 @@
 # Ancient Quotes
+Good food cook slow and one got to be very patient rather than seeing immediate result. The extreme of immediate result is gambling. 
 
 We should never be certain on anything, even the claim that the earth is rounded.
 
