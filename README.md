@@ -1,6 +1,6 @@
 # Ancient Quotes
 
-We should never be certain on anything, even the claim that the earth is rounded, because 有无相生，难易相成，长短相形，高下相盈，音声相和，前后相随。
+We should never be certain on anything, even the claim that the earth is rounded.
 
 Good things often are done simple.
 
