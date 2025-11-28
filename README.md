@@ -1,4 +1,6 @@
-# Ancient Quotes
+# Quotes
+Finishing the work is one thing; doing it well is another. Like football, scoring isn’t everything—the quality of the play matters. That’s why taste matters.
+
 Good food cook slow and one got to be very patient rather than seeing immediate result. The extreme of immediate result is gambling. 
 
 We should never be certain on anything, even the claim that the earth is rounded.
